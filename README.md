@@ -1,0 +1,2 @@
+# 5180711034-tugasAlgo
+ALGORITMA
